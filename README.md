@@ -1,4 +1,0 @@
-# MOOC2A
-# MOOC2A
-# MOOC2A
-# MOOC2A
